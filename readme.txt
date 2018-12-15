@@ -1,5 +1,5 @@
 + Pledge:
-On my honor I have neither given nor rreceived aid on this exam.
+On my honor I have neither given nor received aid on this exam.
 SIGN - Matthew Clinton Lowery
 
 + Archive Contents
